@@ -56,5 +56,15 @@ Yes, these can be offered as **three separate courses**. They are cultural progr
 | **Duration in months** | Approximately **2½ months**; 10 teaching weeks ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). | Approximately **2½ months**; 10 teaching weeks ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). | Approximately **2½ months**; 10 teaching weeks ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). |
 | **Weekly frequency** | **1 class per week:** 60 minutes plus 15–20 minutes of Q&A ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). | **1 class per week:** 60 minutes plus 15–20 minutes of Q&A ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). | **1 class per week:** 60 minutes plus 15–20 minutes of Q&A ([capsule program](https://www.frenchatelierlive.com/culture-capsules)). |
 
+### Culture Capsules: standalone and bundle prices (USD)
+
+| Package | Live classes included | Monthly payment for the package | Total for the package | Per capsule per month |
+|---|---|---|---|---|
+| **Any 1 capsule** | 10 classes · 1 theme | 3 × $99 | **$297** | $99 |
+| **Any 2 capsules** | 20 classes · choose any 2 themes | 3 × $178 | **$534** | $89 |
+| **All 3 capsules** | 30 classes · all 3 themes | 3 × $189 | **$567** | $63 |
+
+These are the [published Culture Capsules package prices](https://www.frenchatelierlive.com/culture-capsules) before any promo code. Each package is paid in three monthly payments; the total shown covers the entire package.
+
 Best,  
 Omri
